@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @IsabellaRV
+- 👋 Hi, I’m @IsabellaRV (Known by peers as Conjour)
 - 👀 I’m interested in Dinosaurs, Geology, Animation, Transformers, and so much more!
 - 🌱 I’m currently learning: Computer Science, Biology, and Life Drawing skills
 - 😄 Pronouns: He/Him and They/Them!
